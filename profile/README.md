@@ -4,7 +4,6 @@
 
 ✉️ 운영진(정) : jacobgreen4477@gmail.com <br>
 ✉️ 운영진(부) : widesight0810@gmail.com <br>
-✉️ 총무 :  <br>
 
 ------------------
 
