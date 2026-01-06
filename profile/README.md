@@ -10,6 +10,10 @@
 
 <img width="1125" height="843" alt="image" src="https://github.com/user-attachments/assets/5b1f71bb-5d7c-436c-a4f3-a6d3973a0590" />
 
+-----------------------
+
+[공지] 제1회 보험 데이터 분석가 모임 안내장 (2026년)
+
 <img width="535" height="778" alt="image" src="https://github.com/user-attachments/assets/961c5ff5-cffd-486c-8982-c4489ceec9f0" />
 
 
